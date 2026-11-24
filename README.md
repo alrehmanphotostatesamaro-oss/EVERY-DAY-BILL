@@ -1,2 +1,0 @@
-# EVERY-DAY-BILL
-1
